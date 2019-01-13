@@ -15,3 +15,10 @@ BENEFITS:
 -Nobody would ever again in our country die because of unavilibility of food or employement.
 
 Thanks for Reading
+
+THE TEAM H.A.T.S signs off now.
+
+ANUBHAV BHATTACHARYA
+HARSH SHUKLA
+TOUHID MOHAMMED
+SAGAR RAJPUT
